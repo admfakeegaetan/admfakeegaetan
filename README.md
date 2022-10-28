@@ -1,7 +1,7 @@
 - 👋 Bonjour, Je suis @admfakeegaetan
 - 👀 Je m'interesse à l'histoire
 - 🌱 J'apprend à me taire
-- 💞️ Je cherche à changer monder
+- 💞️ Je cherche à changer le monde
 - 📫 Suivez-moi sur twitter https://twitter.com/admfake_egaetan
 
 <!---
